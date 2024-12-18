@@ -1,7 +1,7 @@
 ---------
 
-### <br>  ❖ SILENT-SOBX-MD ❖
-🔰 **`THE WORLD BEST WHATSAPP BOT CREATED BY SILENTLOVER 432`** 🔰
+### <br>  ✪ SHABAN-MD ✪
+😇 **`THE WORLD BEST WHATSAPP BOT CREATED BY MRSHABAN`** 😇
 
 ----------
 
@@ -10,12 +10,12 @@
 -------
 
  <p align="center">
-  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=00008B&center=true&vCenter=true&multiline=false&lines=`SHABAN+-+MD+WHATSAPP+BOT`" alt="">
+  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=00008B&center=true&vCenter=true&multiline=false&lines=`SHABAN+-MD+WHATSAPP+BOT`" alt="">
 
 ------------
 
 <img align="center" height="auto"
-src="https://cardivo.vercel.app/api?name=SHABAN%20SOBX%20MD%20V2&description=🥂THE%20WORLD%20BEST%20WHATSAPP%20BOT%★%20CREATED%20BY%20MR%20SHABAN%20432%20KING%20OF%20KINGS%20OWNER%20MR%20SHABAN%20AND%20UMAIR%20SILENT♥️&image=https://i.imgur.com/57Mn5Xw.jpeg?v=4&backgroundColor=%23ecf0f1&github=MRSHABAN&pattern=leaf&colorPattern=%23eaeaea"/>
+src="https://cardivo.vercel.app/api?name=SHABAN%20SOBX%20MD%20V2&description=🥂THE%20WORLD%20BEST%20WHATSAPP%20BOT%★%20CREATED%20BY%20MR%20SHABAN%20432%20KING%20OF%20KINGS%20OWNER%20MR%20SHABAN%20AND%20UMAIR%20SILENT♥️&image=https://i.imgur.com/57Mn5Xw?v=4&backgroundColor=%23ecf0f1&github=MRSHABAN&pattern=leaf&colorPattern=%23eaeaea"/>
 
 <br>
 
@@ -38,11 +38,10 @@ src="https://cardivo.vercel.app/api?name=SHABAN%20SOBX%20MD%20V2&description=�
 -----------
 ----------
 
-<div align="center"><br> <img src="https://profile-counter.glitch.me/SHABAN-MD/count.svg" /><br>SHABAN-MD-V3</div>
+<div align="center"><br> <img src="https://profile-counter.glitch.me/SHABAN-MD/count.svg" /><br>SHABAN-MD-V2</div>
 
 ------------
 
-<a><img src='https://i.imgur.com/57Mn5Xw.gif'/></a>
 <a><img src='https://i.imgur.com/57Mn5Xw.gif'/></a>
 
 --------------
@@ -263,19 +262,8 @@ jobs:
     </a>
 </p>
 
--------------
-
-<a><img src='https://i.imgur.com/57Mn5Xw.gif'/></a>
-
-------------
-
-`᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽᯽`
--------------------
-
-<a><img src='https://i.imgur.com/57Mn5Xw.gif'/></a>
-<a><img src='https://i.imgur.com/57Mn5Xw.gif'/></a>
-
------------
+-------------------------------------------------------------------------
+-------------------------------------------------------------------------
 
 ***😍THANKS FOR USING SHABAN-MD WHATSAPP BOT IF U HAVE ANY PROBLEM YOU CAN CONTECT ME NOTE MR-SHABAN A ANTIBAN WHATSAPP BOT BUT IF YOUR WHATSAPP ACCOUNT BANNED THEN I'M NO RESPONSE ABLE THANKYOU BY MRSHABAN KING OF WHATSAPP♥️***
 
